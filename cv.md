@@ -7,4 +7,4 @@ discord nicnaime Nurbek222
     studying frontend development
 ## Work experiense: 10 years in the bank
 ## looking for an interesting activity
-## 1
+## thanks
